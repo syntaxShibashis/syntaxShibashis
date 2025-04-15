@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @syntaxShibashis
 - 👀 I’m interested in .Cracking..
-- 🌱 I’m currently learning .C99..
-- 💞️ I’m looking to collaborate on .She..
+- 🌱 I’m currently learning .oop..
+- 💞️ I’m looking to collaborate on .Don't know.
 - 📫 How to reach me ..Email me.
 - 😄 Pronouns: .Shiba..
 - ⚡ Fun fact: .Crazy..
